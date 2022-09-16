@@ -1,0 +1,1 @@
+# Kyouma960.github.io
